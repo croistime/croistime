@@ -1,4 +1,8 @@
-ill remake this soon. hopefully.
 </p>
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=polusoutpost&color=ff5ec9&label=♡+CREWMATES+&abbreviated=true&base=200&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=croistime&color=000000&label=tbd+employees+&abbreviated=true&base=578&style=round" />
+</p>
+<p align="center">
+  <img src="https://imglink.cc/cdn/oVNimmnfHg.png"width="650" />
+</p>
+wip lol
