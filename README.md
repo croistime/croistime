@@ -7,4 +7,4 @@
 </p>
 <div align="center">havie/ask⠀⠀·⠀⠀she/him pref⠀⠀·⠀⠀audhd bpd</div>
 <div align="center">c+h and interaction encouraged, little to no boundaries</div>
-<div align="center">i love croissant & tk too much. dttm about croisstring</div>
+<div align="center">tbd & sno fans int please · dttm about croisstring</div>
